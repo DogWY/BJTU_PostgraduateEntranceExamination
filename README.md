@@ -1,2 +1,4 @@
 # BJTU_PostgraduateEntranceExamination
 总结本人北交计算机学硕考研经历，希望能够对后来者有所帮助
+
+本人23届考生
