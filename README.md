@@ -31,5 +31,10 @@
 
 > 真题是我从淘宝购入的
 
+- 红果考研三套专业课模拟卷（2023年版）：https://www.aliyundrive.com/s/ky5XfMno9mc 
 
+> 非常私密马赛，本来我买的时候是有五套模拟卷的，但是在我考完回头找的时候只找到三套
 
+- 学硕复试参考书（离散数学）： https://www.aliyundrive.com/s/sGMbqwjL3o5 
+
+> 学硕复试的笔试部分23年时只考离散数学
